@@ -1,2 +1,0 @@
-# ankitbhandari.io
-Personal Webpage
